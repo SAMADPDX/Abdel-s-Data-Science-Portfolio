@@ -1,3 +1,3 @@
-Abdelwahab Abdusamad, Third-Year Biochemistry and Molecular Biology Major
+Abdelwahab Abdusamad, Fourth Year Statistical Data Science Student @ UC Davis 
 
 Contact information : AAbdusamad@UCDavis.edu
